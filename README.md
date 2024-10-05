@@ -1,4 +1,2 @@
-Martin ) Robin ) Red ) Butch 
-your Wild Kratts Martin kin 
-i wanna go on a creature adventure!!!!!!!
-Lt Irl i kin almost everything 
+◈puff / red / butch
+i like drawn together, your favorite martian, dick figures, ect, if you wanna talk just meet me in pt,i don't bite , I'm Spanish so please be kindd,,!
