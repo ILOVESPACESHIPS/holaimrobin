@@ -1,2 +1,5 @@
-◈puff / red / butch
-i like drawn together, your favorite martian, dick figures, ect, if you wanna talk just meet me in pt,i don't bite , I'm Spanish so please be kindd,,!
+puff
+your favorite martian enjoyer
+is not puff puff from yfm,/hj
+short temper sometimes 
+idk i just might be puff and you wouldn't know... 😊
